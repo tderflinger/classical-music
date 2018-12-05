@@ -1,2 +1,4 @@
-# classical-music
-Resources of Western Classical Music
+# Western Classical Music
+
+This is a list of Western Classical Music.
+

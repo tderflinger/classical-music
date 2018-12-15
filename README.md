@@ -38,6 +38,7 @@ http://www.classical.net/
 
 https://leonardbernstein.com/
 
+
 https://www.wien.info/en/music-stage-shows/classic
 
 https://www.newyorker.com/goings-on-about-town/classical-music
@@ -54,7 +55,21 @@ https://www.classicalmpr.org/
 
 https://bachtrack.com/
 
+https://www.medici.tv/en/
 
+
+
+## Deutsche Links
+
+http://www.klassikakzente.de/komponisten
+
+https://www.goethe.de/de/kul/mus/gen/kla.html
+
+https://www.ndr.de/kultur/musik/klassik/klassikindex101.html
+
+http://www.spiegel.de/thema/klassische_musik/archiv.html
+
+http://www.taz.de/!t5013261/
 
 
 

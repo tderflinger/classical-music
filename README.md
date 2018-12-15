@@ -38,4 +38,23 @@ http://www.classical.net/
 
 https://leonardbernstein.com/
 
+https://www.wien.info/en/music-stage-shows/classic
+
+https://www.newyorker.com/goings-on-about-town/classical-music
+
+https://www.gramophone.co.uk/
+
+https://www.talkclassical.com/classical-music-discussion/ (Forum)
+
+https://www.wqxr.org/
+
+https://www.aberystwythartscentre.co.uk/whats-on/classical-music
+
+https://www.classicalmpr.org/
+
+https://bachtrack.com/
+
+
+
+
 

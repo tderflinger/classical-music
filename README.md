@@ -73,5 +73,29 @@ http://www.taz.de/!t5013261/
 
 http://www.fonoforum.de/home/
 
+https://www.klassik.com/
 
-(53 Minuten)
+http://www.klassikakzente.de/news
+
+https://www.br-klassik.de/aktuell/news-kritik/index.html
+
+http://www.musik-heute.de/
+
+http://www.klassik-heute.com/
+
+https://de.euronews.com/tag/klassische-musik
+
+http://www.klassikinfo.de/
+
+https://www.swr.de/swr2/musik/musik/-/id=661124/did=20096402/nid=661124/1vhy6eq/index.html
+
+
+
+
+## Classische Musik (Midi Files)
+
+https://www.classicalarchives.com/midi.html
+
+http://www.kunstderfuge.com/
+
+http://www.midiworld.com/classic.htm

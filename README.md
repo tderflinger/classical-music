@@ -92,7 +92,7 @@ https://www.swr.de/swr2/musik/musik/-/id=661124/did=20096402/nid=661124/1vhy6eq/
 
 
 
-## Classische Musik (Midi Files)
+## Klassische Musik (Midi Files)
 
 https://www.classicalarchives.com/midi.html
 

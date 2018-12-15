@@ -71,5 +71,7 @@ http://www.spiegel.de/thema/klassische_musik/archiv.html
 
 http://www.taz.de/!t5013261/
 
+http://www.fonoforum.de/home/
 
 
+(53 Minuten)

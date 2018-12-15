@@ -89,6 +89,18 @@ http://www.klassikinfo.de/
 
 https://www.swr.de/swr2/musik/musik/-/id=661124/did=20096402/nid=661124/1vhy6eq/index.html
 
+http://www.klassikakzente.de/klassik-macht-gluecklich/home
+
+https://www.br-klassik.de/themen/klassik-entdecken/alte-musik/index.html
+
+https://www.kunstfinder.de/klassik.htm
+
+https://www.sueddeutsche.de/thema/Klassische_Musik
+
+http://www.klassik-heute.com/klassik_heute_medien_themen.shtml
+
+
+
 
 
 

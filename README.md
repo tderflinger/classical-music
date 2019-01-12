@@ -37,7 +37,7 @@ http://www.arkivmusic.com/classical/main.jsp?null
 http://www.classical.net/
 
 https://leonardbernstein.com/
-
+ 
 
 https://www.wien.info/en/music-stage-shows/classic
 
@@ -112,3 +112,50 @@ https://www.classicalarchives.com/midi.html
 http://www.kunstderfuge.com/
 
 http://www.midiworld.com/classic.htm
+
+
+
+
+
+## Gemafreie Musik (Enstpannung etc.)
+
+https://www.traumklang-musik.de/
+
+https://www.musicfox.com/thema/meditation/1
+
+https://www.frametraxx.de/Gemafreie-Musik/entspannungsmusik/
+
+http://freemusicarchive.org/tag/relaxing_music/
+
+https://www.melodyloops.com/music-for/relax/
+
+https://www.purple-planet.com/emotional
+
+http://www.orangefreesounds.com/meditation-music-free/
+
+https://cctrax.com/ambient-music
+
+https://elements.envato.com/audio?_ga=2.18410491.3105561.1547299115-98274127.1547299115&_gac=1.138217988.1547299115.EAIaIQobChMIsKuFrKro3wIVTzjgCh128wttEAEYASAAEgIjp_D_BwE
+
+https://www.bensound.com/royalty-free-music/
+
+https://www.silvermansound.com/free-music
+
+https://audeeyah.com/genre/ambient-chill-out
+
+https://www.freestockmusic.com/category/classical-production-music/
+
+https://www.dl-sounds.com/royalty-free/category/chill-out-lounge/lounge/
+
+http://freemusicarchive.org/genre/Classical/
+
+https://de.audioblocks.com/royalty-free-audio/classical-music
+
+https://www.youtube.com/results?search_query=relax+musik
+
+https://offers.adobe.com/en/na/audition/offers/audition_dlc/AdobeAuditionDLCSFX.html
+
+http://www.soundshiva.net/genres/chillout
+
+
+
